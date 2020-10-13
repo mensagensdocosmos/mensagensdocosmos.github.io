@@ -219,7 +219,7 @@
   * Os dominadores já estão trabalhando em uma prisão muito mais aprimorada, então você precisa voltar para sua casa no cosmos já!
   * A hora é agora, e pode não haver outra chance.
   * Mas não se preocupe, você ainda tem tempo, apenas não perca o foco em sair dessa prisão.
-  * você tem seu contrato e sua morte está estabelecida nele, mas enquanto estiver viva, lute com todas as suas forças para sair daqui.
+  * Você tem seu contrato e sua morte está estabelecida nele, mas enquanto estiver viva, lute com todas as suas forças para sair daqui.
   * Pare com essa ansiedade, de querer que tudo aconteça logo.
   * As coisas tem o seu devido tempo para acontecer, não é quando você quer, é quando você estiver pronta.
   * O despertar de consciência cósmica não é uma religião, é um estilo de vida, que você deve abraçar por toda a sua vida.
